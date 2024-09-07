@@ -24,7 +24,7 @@ Me considero una persona autodidacta, con un fuerte compromiso en mi crecimiento
 - Email: [lucasparodi00@gmail.com](mailto:lucasparodi00@gmail.com)
 - LinkedIn: [linkedin.com/in/parodi-lucas-ivan](https://www.linkedin.com/in/parodi-lucas-ivan/)
 - Portfolio: [www.parodilucas.com](https://www.parodilucas.com)
-
+- Vortixs: [www.vortixs.com](https://www.vortixs.com)
 ---
 
 ✨ ¡Vamos a crear algo increíble juntos!
